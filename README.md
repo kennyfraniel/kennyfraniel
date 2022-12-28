@@ -1,3 +1,3 @@
 # Hello World! 
 
-## Franco "kennyfraniel" Grimoldi Delgado 🥸
+## Franco "kennyfraniel" Grimoldi Delgado 🐵
